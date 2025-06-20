@@ -10,6 +10,6 @@ hi welcome to my page :3 i'm an assistant manager at spencer's by day, and in my
 <blockquote>my favorite is trigun maximum, but i love all three! my triguniversary is april 20th, 2023. my favorite characters are the main quartet, LR, & legato, but i love pretty much every character except chapel LOL. dni btw if you're KV i think incest is weird and bad.</blockquote>
 i also love <i>fire emblem</i>, <i>monster hunter</i>, & <i>tamagotchi!</i> please feel free to talk to me about any of these, i am very passionate about them... ♡ outside of media, i like writing, drawing, gardening, making rainbow loom bracelets, and all things citrus, but particularly oranges!
 <br/><br/>
-<p align="center">SIGN MY <a href="ATABOOK">ATABOOK</a> PLEASE!!! THANKS FOR STOPPING BY!!!
+<p align="center">SIGN MY <a href="https://trigun.atabook.org/">ATABOOK</a> PLEASE!!! THANKS FOR STOPPING BY!!!
 <br/><br/>
 <p align="center"><img src="https://c.tenor.com/cQ-praq5W7UAAAAC/tenor.gif"/><img src="https://media1.tenor.com/m/Tqbpt72eEmgAAAAC/oh-my-goodness-gracious-milly-thompson.gif"></p>
