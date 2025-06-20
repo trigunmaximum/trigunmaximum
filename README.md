@@ -7,9 +7,9 @@ hi welcome to my page :3 i'm an assistant manager at spencer's by day, and in my
 <br><br>
 <p align="center"><img src="https://c.tenor.com/k4OcM1XgiBwAAAAC/tenor.gif"/><img src="https://c.tenor.com/8FGj_LUxCiwAAAAC/tenor.gif"/></p>
 <h3>I LOVE TRIGUN!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!</h3>
-<blockquote><sub>my favorite is trigun maximum, but i love all three! my triguniversary is april 20th, 2023.</sub></blockquote>
-i also love <i>fire emblem</i>, <i>monster hunter</i>, & <i>tamagotchi!</i> please feel free to talk to me about any of these, i am very passionate about them... ♡
+<blockquote>my favorite is trigun maximum, but i love all three! my triguniversary is april 20th, 2023. my favorite characters are the main quartet, LR, & legato, but i love pretty much every character except chapel LOL. dni btw if you're KV i think incest is weird and bad.</blockquote>
+i also love <i>fire emblem</i>, <i>monster hunter</i>, & <i>tamagotchi!</i> please feel free to talk to me about any of these, i am very passionate about them... ♡ outside of media, i like writing, drawing, gardening, making rainbow loom bracelets, and all things citrus, but particularly oranges!
 <br/><br/>
 <p align="center">SIGN MY <a href="ATABOOK">ATABOOK</a> PLEASE!!! THANKS FOR STOPPING BY!!!
 <br/><br/>
-<p align="center"><img src="https://c.tenor.com/cQ-praq5W7UAAAAC/tenor.gif"/><img src="https://media1.tenor.com/m/tqYX2JrleLQAAAAC/trigun-trimax.gif"></p>
+<p align="center"><img src="https://c.tenor.com/cQ-praq5W7UAAAAC/tenor.gif"/><img src="https://media1.tenor.com/m/Tqbpt72eEmgAAAAC/oh-my-goodness-gracious-milly-thompson.gif"></p>
