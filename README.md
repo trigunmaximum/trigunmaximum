@@ -1,16 +1,15 @@
-## Hi there 👋
-
-<!--
-**trigunmaximum/trigunmaximum** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center"><img src="https://media1.tenor.com/m/MhSisMd7BM8AAAAC/trigun-trigun-wolfwood.gif"/><img src="https://media1.tenor.com/m/TiIHEbzOBAMAAAAC/trigun-hi-meryl-stryfe.gif"></p>
+<h1> HI, I'M MARTH!</h1>
+<blockquote><b>HE/THEY/ORANGE/EMBLEM ⟡ 24 ⟡ TRANSMASCULINE BISEXUAL ⟡ AUDHD</b><br>
+<sub>i think oran is very nice ; i met orange today ; i like oranges sweater ; oran is doing it by orangeself<br>
+i think em is very nice ; i met emblem today ; i like emblems sweater ; em is doing it by emblemself</sub></blockquote>
+hi welcome to my page :3 i'm an assistant manager at spencer's by day, and in my free time, i like playing ponies. you can find me on the benches near spawn, usually sitting by my best friend and/or my girlfriend, but i am always 100% happy to interact and make friends with people!!!!! i check the tab often, but you may have to whisper to get my attention, sorry— feel free to do so if i haven't responded in about 2-3 minutes!
+<br><br>
+<p align="center"><img src="https://c.tenor.com/k4OcM1XgiBwAAAAC/tenor.gif"/><img src="https://c.tenor.com/8FGj_LUxCiwAAAAC/tenor.gif"/></p>
+<h3>I LOVE TRIGUN!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!</h3>
+<blockquote><sub>my favorite is trigun maximum, but i love all three! my triguniversary is april 20th, 2023.</sub></blockquote>
+i also love <i>fire emblem</i>, <i>monster hunter</i>, & <i>tamagotchi!</i> please feel free to talk to me about any of these, i am very passionate about them... ♡
+<br/><br/>
+<p align="center">SIGN MY <a href="ATABOOK">ATABOOK</a> PLEASE!!! THANKS FOR STOPPING BY!!!
+<br/><br/>
+<p align="center"><img src="https://c.tenor.com/cQ-praq5W7UAAAAC/tenor.gif"/><img src="https://media1.tenor.com/m/tqYX2JrleLQAAAAC/trigun-trimax.gif"></p>
